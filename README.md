@@ -1,5 +1,4 @@
-# photos
-
-https://www.istockphoto.com/photo/black-angus-cows-gm180720567-24146923
-
-https://www.google.com/imgres?imgurl=http%3A%2F%2Findustry.visitmaryland.org%2Fwp-content%2Fuploads%2F2015%2F02%2Fmarketing-feature.jpg&imgrefurl=http%3A%2F%2Findustry.visitmaryland.org%2Fmarketing-advertising%2F&docid=9xKB4BRPW3w4wM&tbnid=q3DR6Dio4K2jnM%3A&vet=10ahUKEwj73eeQx9bdAhUK_4MKHXFPA48QMwh8KAQwBA..i&w=1266&h=546&safe=active&bih=969&biw=1920&q=marketing%20and%20advertising&ved=0ahUKEwj73eeQx9bdAhUK_4MKHXFPA48QMwh8KAQwBA&iact=mrc&uact=8
+# Topic commitment
+***
+For our first assignment I would like to write about how to operate a successful farm business. This will include, how to start a farm if you have little prior experience and include profits and losses of running a farm . These instructions will also consider the resources the land provides and its needs ,as well as considering the needs of the animals in your care and how to market and sell what you produce. 
+**
